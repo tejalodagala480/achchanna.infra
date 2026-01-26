@@ -42,7 +42,7 @@ To be a trusted leader in the construction industry by delivering superior proje
 📍 **Location:** Andhra Pradesh  
 📞 **Phone:** +91 9959353902  
 ✉️ **Email:** achchanna.infra@gmail.com
-🌐 **Website:** https://tejalodagala480.github.io/ACHCHANNA-CONSTRUCTIONS/  
+🌐 **Website:** https://tejalodagala480.github.io/achchanna.infra/  
 
 ## Follow Us
 Stay updated with our latest projects and news!
